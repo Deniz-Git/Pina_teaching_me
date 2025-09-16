@@ -1,3 +1,3 @@
-I'm dying I caught a bug :((
+Pina is totally healthy. 
 
-I hope you get better!
+SHe is not sick at all!
